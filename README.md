@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Sarthak-Sinhaa
+- 👀 I’m interested in computer
+- 🌱 I’m currently learning Python and Java
+- 💞️ I’m looking to collaborate on ...
+- 📫 To reach me contact me on discord (Username - the._edge_lord) 
+- 😄 Pronouns: I am not into this 
+- ⚡ Fun fact: None
